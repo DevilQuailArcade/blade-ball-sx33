@@ -1,4 +1,4 @@
-
+blade ball Script instant offers the most advanced blade ball Script, with auto-sell and undetectable. Perfect for dominating any match.
 
 
 
